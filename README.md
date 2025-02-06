@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JASMINE-rpg
 - 👀 I’m interested in IN LEARNING MANY NEW THINGS
-- 🌱 I’m currently learning I AM DOING B.TECH
+- 🌱 I’m currently learning  B.TECH
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me I AM ALWAYS AVAILABLE
 - 😄 Pronouns: LEARN MANY NEW THINGS EVERYDAY
